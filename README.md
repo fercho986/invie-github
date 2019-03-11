@@ -1,2 +1,2 @@
 # invie-github
-Tus mejores guitarras
+Tus mejores guitarras, Sonidos legendarios al alcance de tus manos
